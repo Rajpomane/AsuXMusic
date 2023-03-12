@@ -14,7 +14,10 @@ v<h2 align="center">
 ## [ᴜᴘᴅᴀᴛᴇ](https://t.me/Abishnoi_bots)  
 
 ## ⚡ (ɢɪᴠᴇ sᴛᴀʀ)
-  
+ 
+ <p align="center">
+  <img src="https://te.legra.ph/file/cec6518193ab44ae567d1.jpg">
+</p>
 ━━━━━━━━━━━━━━━━━━━━
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
@@ -26,7 +29,9 @@ v<h2 align="center">
 <b>𝗗𝗘𝗣𝗟𝗢𝗬𝗠𝗘𝗡𝗧 𝗠𝗘𝗧𝗛𝗢𝗗𝗦</b>
 </p>
 
-
+<p align="center">
+  <img src="https://te.legra.ph/file/f4598094759796cb693eb.jpg">
+</p>
 
 ──────────
 
